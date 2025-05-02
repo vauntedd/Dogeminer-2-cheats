@@ -1,1 +1,3 @@
-These cheats were made by Anthony Sly who is a student at SDMS
+These cheats were made by Anthony Sly
+
+felt like making there cuz why not?
